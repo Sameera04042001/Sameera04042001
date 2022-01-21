@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Sameera04042001
 - 👀 I’m interested in Digital marketing, Ethical hacking,web development
-- 🌱 I’m currently learning html css and javascript to develop skill
+- 🌱 I’m currently learning html css and javascript to develop the skill
 - 📫 you can recch me at sameerasherin04@gmail.comherin
